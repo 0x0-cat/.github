@@ -1,5 +1,7 @@
-![387501021_716808437068232_297493733494609555_n](https://github.com/0x0-cat/.github/assets/7070368/45a54fe0-3e64-4179-9ec9-a75514b95f77)
-# 🐾 0x0.cat: The Purr-fect Blend of Innovation & Interoperability 🚀
+![github](https://github.com/0x0-cat/.github/assets/7070368/28ba7862-11b7-48bb-9dd4-f6daf252b06e)
+
+
+# 🐾 The Purr-fect Blend of Innovation & Interoperability
 
 Not just another inscription service, we're the leap forward in the crypto world! 
 At 0x0.cat, we're not chasing to be the first; we're devoted to being the most advanced. 🧠💡
