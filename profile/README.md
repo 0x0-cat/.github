@@ -1,3 +1,4 @@
+![387501021_716808437068232_297493733494609555_n](https://github.com/0x0-cat/.github/assets/7070368/45a54fe0-3e64-4179-9ec9-a75514b95f77)
 # 🐾 0x0.cat: The Purr-fect Blend of Innovation & Interoperability 🚀
 
 Not just another inscription service, we're the leap forward in the crypto world! 
